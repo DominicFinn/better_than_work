@@ -76,4 +76,4 @@ Dynamics
 
 Offloading people onto other players, how do you do a restructure into the game. 
 
-OK so we are definitely making a deck buiding 
+*OK so we are definitely making a deck buiding game. That's definitely going to be the most fun.*
