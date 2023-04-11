@@ -1,1 +1,3 @@
 # CFO
+
+A real jack of all trades, Peter Kinsella is master of none. Although he commands a division of financial administrators he's involved in all parts of the business and enjoys a position at the top of the corporate ladder. Beware, Peter isn't scared to kick the ladder away from the wall. In fact he'd probably tell you he's an expert in ladder kicking and has also owned many walls in his lifetime. 
