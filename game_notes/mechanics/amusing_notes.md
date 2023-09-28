@@ -2,7 +2,7 @@
 
 You work for *Flourish*. 
 
-Be Bold, Be Brave, Flourish. It's not entirely clear what the Flourish do but most employees suggest the company will IPO within a 3 year plan. During your onboarding, you are all excited to be joining such a fast paced young company. Your HR representative has an air of superiority which leaves you excited "this must be an amazing company". You are rearing to go once, there's just that paperwork to complete and the mandatory HR training sessions and then you can really begin to make the real change you've always wanted to.  
+Be Bold, Be Brave, Flourish. It's not entirely clear what the company Flourish do but most employees suggest the company will IPO within a 3 year plan. During your onboarding, you are all excited to be joining such a fast paced young company. Your HR representative has an air of superiority which leaves you excited "this must be an amazing company". You are rearing to go, there's just that paperwork to complete and the mandatory HR training sessions and then you can really begin to make the real change you've always wanted to.  
 
 You need to earn the maximum cash doing the minimum work. How do you get recognised with a bonus whilst at the same time, avoid being in meetings all day listening to wankers. 
 
