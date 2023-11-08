@@ -11,3 +11,4 @@ A lifelong manager, they're unable to offer any constructive / useful work. They
 |controversy|8|
 |meeting creation|6|
 |meeting attendance|10|
+
