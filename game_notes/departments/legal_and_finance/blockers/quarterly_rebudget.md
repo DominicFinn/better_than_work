@@ -1,0 +1,1 @@
+Ooops, time to start the re-budget again. Let's take stock and re-evaluate everything. Head count needs to be re-justified and sales forecasts have to be made up once again! 

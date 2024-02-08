@@ -1,0 +1,1 @@
+You are about to hit the big time. Your customer is ready to buy. One last thing, that pesky credit check. I hope you submitted your finance ticket 2 weeks ago as there's a big lead time. 
